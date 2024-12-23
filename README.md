@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Supun-Chinthana
-- 👀 I’m interested in Robotics, Networking, AI, Python, C and Piano playing
+- 👋 Hi, I’m Supun Chinthana
+- 👀 I’m interested in Robotics, Networking, AI, Python, C, Piano playing, Mountain Biking and Football (CR7 for life)
 - 🌱 I’m currently learning Networking
 - 📫 How to reach me - email me at supunchinthanama@gmail.com
 - 😄 Pronouns: I hate this LGBTQ shit. Im a guy and thats all you need to know
